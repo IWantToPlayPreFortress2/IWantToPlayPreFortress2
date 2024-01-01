@@ -2,7 +2,7 @@
 - 👀 I’m interested in playing Pre-Fortress 2
 - 🌱 I’m currently learning how to play Pre-Fortress 2
 - 💞️ I’m looking to collaborate on playing Pre-Fortress 2
-- 📫 How to reach me Pre-Fortress 2 (maybe)
+- 📫 How to reach me Pre-Fortress 2 (maybe)(probably)(most likley not)
 
 <!---
 IWantToPlayPreFortress2/IWantToPlayPreFortress2 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
